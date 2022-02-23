@@ -1,1 +1,1 @@
-# AkirqUchiha92.github.io
+# AkiraUchiha92.github.io
